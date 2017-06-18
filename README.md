@@ -1,4 +1,3 @@
-## Welcome to GitHub Pages
+## THIS IS FOR YOU SISKA ROHMAH
 
-Pengen berak gw ngetik ginian
-ntah kenapa yang penting panjang aja dah
+ntah kenapa gw iseng aja buatnya xD
